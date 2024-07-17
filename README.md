@@ -13,7 +13,6 @@ https://brasil.campus-party.org/cpbr16/programacao
 - Paula Larocca
 
 ## Links
-
 - Not My A.I.: https://notmy.ai/pt/mapeamento-de-projetos/
 - G1. Alunos de colégio na Barra são suspeitos de usar inteligência artificial para fazer montagens de colegas nuas e compartilhar. *G1*, Rio de Janeiro, 1 nov. 2023. Disponível em: https://g1.globo.com/rj/rio-de-janeiro/noticia/2023/11/01/alunos-de-colegio-na-barra-sao-suspeitos-de-usar-inteligencia-artificial-para-fazer-montagens-de-colegas-nuas-e-compartilhar.ghtml. Acesso em: 11 jul. 2024.
 - PEREIRA, Ives da Silva Duque et al. Zoológicos humanos digitais: continuidades nas relações de poder no uso ilegal de inteligência artificial generativa (IA GEN) para criação de imagens íntimas falsificadas (deepnudes) por estudantes.
