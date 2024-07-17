@@ -12,6 +12,11 @@ https://brasil.campus-party.org/cpbr16/programacao
 - Nayra Kaline
 - Paula Larocca
 
+## Gravação da apresentação
+
+A apresentação pode ser conferida no link abaixo, já no minuto correto. Confiram!
+https://www.youtube.com/live/RmsI_YufN5A?si=_f8xBYAeoatSjkmf&t=36441
+
 ## Links
 - Not My A.I.: https://notmy.ai/pt/mapeamento-de-projetos/
 - G1. Alunos de colégio na Barra são suspeitos de usar inteligência artificial para fazer montagens de colegas nuas e compartilhar. *G1*, Rio de Janeiro, 1 nov. 2023. Disponível em: https://g1.globo.com/rj/rio-de-janeiro/noticia/2023/11/01/alunos-de-colegio-na-barra-sao-suspeitos-de-usar-inteligencia-artificial-para-fazer-montagens-de-colegas-nuas-e-compartilhar.ghtml. Acesso em: 11 jul. 2024.
